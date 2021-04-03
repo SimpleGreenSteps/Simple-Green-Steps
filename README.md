@@ -15,5 +15,8 @@ Invest in a bamboo or metal one if you need a straw.
 9. Turn off the lights.
 10. Buy local.
 11. Start a compost heap.
-12.
-
+12. Swap the clothes you buy to natural fibres.
+13. Hand wash where possible.
+14. Hang your clothes out to dry. Don't use a tumble-dryer.
+15. Plant a tree
+16. 
