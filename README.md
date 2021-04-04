@@ -35,4 +35,5 @@ even better bamboo. Avoid Acetate.
 28. Use soap berries or "Indian wash nuts" to scrub your laundry in an economical way.
 29. Eat seasonally.
 30. Carry a reusable bag.
-31.
+31. Take your own containers to takeaways.
+32. 
