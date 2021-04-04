@@ -41,5 +41,9 @@ even better bamboo. Avoid Acetate.
 34. Buy a non-disposable razor.
 35. Avoid fast food.
 36. Replace tea bags with loose leaf tea.
+37. Make a list before you go shopping. Don't go to the store hungry.
+38. Switch to organic cotton and clothes without plastic.
+39. Make stock with leftover bones. Aim for zero waste when cooking.
+40. 
 
 
