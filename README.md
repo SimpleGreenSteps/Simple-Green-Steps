@@ -36,4 +36,6 @@ even better bamboo. Avoid Acetate.
 29. Eat seasonally.
 30. Carry a reusable bag.
 31. Take your own containers to takeaways.
-32. 
+32. Buy loose fruit and vegetables.
+33. Learn to grow your own vegetables.
+34. 
