@@ -39,4 +39,7 @@ even better bamboo. Avoid Acetate.
 32. Buy loose fruit and vegetables.
 33. Learn to grow your own vegetables.
 34. Buy a non-disposable razor.
+35. Avoid fast food.
+36. Replace tea bags with loose leaf tea.
+
 
