@@ -18,5 +18,12 @@ Invest in a bamboo or metal one if you need a straw.
 12. Swap the clothes you buy to natural fibres.
 13. Hand wash where possible.
 14. Hang your clothes out to dry. Don't use a tumble-dryer.
-15. Plant a tree
-16. 
+15. Plant a tree.
+16. Wash your jeans by hand in cold water. Then hang out to dry.
+17. Buy sunglasses made from recycled plastic, metal or 
+even better bamboo. Avoid Acetate.
+18. Learn to sew/repair your own clothes.
+19. Repair your shoes.
+20. Buy ingredients in bulk to reduce your plastic.
+21. Eat seasonally.
+22. 
