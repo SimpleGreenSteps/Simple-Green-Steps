@@ -26,4 +26,13 @@ even better bamboo. Avoid Acetate.
 19. Repair your shoes.
 20. Buy ingredients in bulk to reduce your plastic.
 21. Eat seasonally.
-22. 
+22. Use a miswak. It's a natural toothbrush used for thousands of years.
+23. Use soap instead of shower gel.
+24. Use shampoo soap instead of the plastic bottle.
+25. Use a sugar/lemon juice mixture to wax.
+26. Buy second hand.
+27. Carry a handkerchief to reduce your tissue usage.
+28. Use soap berries or "Indian wash nuts" to scrub your laundry in an economical way.
+29. Eat seasonally.
+30. Carry a reusable bag.
+31.
