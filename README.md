@@ -55,4 +55,5 @@ even better bamboo. Avoid Acetate.
 48. Write to your elected official to do more on environmental issues.
 49. Learn how to be more environmentally conscious online.
 50. Use lemon and vinegar to clean.
+51. Learn to cook.
 
