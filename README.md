@@ -44,6 +44,15 @@ even better bamboo. Avoid Acetate.
 37. Make a list before you go shopping. Don't go to the store hungry.
 38. Switch to organic cotton and clothes without plastic.
 39. Make stock with leftover bones. Aim for zero waste when cooking.
-40. 
-
+40. Love coffee? Make your own at home or buy a flask. The containers at large franchises are not recyclable.
+41. Try a bamboo toothbrush.
+42. Take a packed lunch.
+43. Buy lunch often? Carry your own utensils.
+44. Use more public transport (when it's safe to do so)
+45. For items used often: buy in bulk to reduce the number of trips needed. 
+46. Wrap your gifts in decorative cloth. https://en.m.wikipedia.org/wiki/Furoshiki 
+47. Give an e-card instead of a paper card.
+48. Write to your elected official to do more on environmental issues.
+49. Learn how to be more environmentally conscious online.
+50. Use lemon and vinegar to clean.
 
